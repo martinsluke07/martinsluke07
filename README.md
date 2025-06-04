@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @martinsluke07
-- 👀 I’m interested in .. AREA BACK-AND
+- 👀 I’m interested in .. PROGRAMAÇÃO
 - 🌱 I’m currently learning ...LOGICA DE PROGRAMAÇÃO/JAVA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...INSTA:@lucasmsilva07_
